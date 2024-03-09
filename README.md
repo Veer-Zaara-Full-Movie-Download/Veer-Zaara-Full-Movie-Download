@@ -1,7 +1,7 @@
 # Veer Zaara Full Movie Download Hd or Watch Movie Online <br><br><center>
 &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;
-[![Watch Online](https://img.shields.io/badge/Watch%20Online-🎬-blue?style=for-the-badge)](https://bit.ly/veerzara1)&ensp;&ensp;
-[![Download Now](https://img.shields.io/badge/Download%20Now-⬇️-orange?style=for-the-badge)](https://bit.ly/veerzara1)
+# [![Watch Online](https://img.shields.io/badge/Watch%20Online-🎬-blue?style=for-the-badge)](https://bit.ly/veerzara1)&ensp;&ensp;
+# [![Download Now](https://img.shields.io/badge/Download%20Now-⬇️-orange?style=for-the-badge)](https://bit.ly/veerzara1)
 
 
 <br><br>
